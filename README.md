@@ -1,1 +1,0 @@
-# AI_Powerd_Finance_Manager
